@@ -1,0 +1,1 @@
+KPZ na Moodleu koji je nosio 10 bodova
